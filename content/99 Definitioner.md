@@ -32,7 +32,7 @@ Alt det som profeten har sagt og gjort
 Sunnimuslimsk flertal som følger profeten og sahaber
 
 ## Sahaba
-Profeten Muhammads ledsagere, muslimer som mødte ham, troede på ham og døde som muslimer.
+Profeten Muhammads ﷺ ledsagere, muslimer som mødte ham, troede på ham og døde som muslimer.
 ## Tabi'in
 Generationen efter sahaba, muslimer som mødte mindst én sahabi, men ikke profeten selv.
 ## Tabi'in Tabi'in
