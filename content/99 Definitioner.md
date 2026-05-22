@@ -14,14 +14,14 @@
 	- Injil (biblen)
 	- Quran 
 	
-	Der inkluderes også bøger som er tabt til tiden som fx bogen profeten Noor fik.
+Der inkluderes også bøger som er tabt til tiden som fx bogen profeten Noor fik.
 1. Hans Sendebude (profeterne)
 	- Profeten Musa (Moses) pbuh
 	- Profeten Dadu (David) pbuh
 	- Profeten Isa (Jesus) pbuh
 	- Profeten Muhammad S.A
 	
-	Derudover er der også andre, i alt 124.000 profeter
+Derudover er der også andre, i alt 124.000 profeter
 	- Profeten Nuh (Noah) pbuh
 	- Profeten Ibrahim (Abraham) pbuh
 2. Den Yderste dag (dommedagen)
