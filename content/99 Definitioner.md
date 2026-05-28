@@ -44,3 +44,16 @@ Tilbedelsen af en anden gud eller sidestiller nogen/noget med Allah
 ## Munafiq
 Falske muslimer, som i det ydre fremviser at være muslim, men indvendigt er vantro. 
 Et andet ord for dette er dobbeltmoralsk
+
+## Israeliyat 
+Israeliyat er viden kommet fra folket af Israel (jøder). En general regel, for hvordan man skal holde sig til dette er det følgende. Oftes bruges dette til at forklare historier om fortiden og om fortidens profeter.
+
+Der er 3 typer af Israeliyat
+- Israeliyat som er strid mod koranen, falsk.
+	
+- Israeliyat som er ikke i strid mod koranen, nok sandhed.
+	
+- Detaljeret Israeliyat som giver ekstra detaljer til historie.
+
+Super vigtigt: bruges Israeliyat aldrig til akida, kun til historie.
+## Taslim
